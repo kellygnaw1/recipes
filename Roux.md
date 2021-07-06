@@ -5,8 +5,6 @@
 - 0.25 cup flour 
 - 300 ml milk 
 
-*** 
-
 ## Instructions
 1. melt butter in a sauce pan
 2. slowly put in the flour 

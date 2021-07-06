@@ -12,8 +12,7 @@
 - splash of vanilla extract 
 - cinnamon 
 - salt  
-
-*** 
+ 
 
 ## Instructions
 1. prehead the oven at 350 

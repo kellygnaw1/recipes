@@ -13,8 +13,6 @@
 - flakey salt for finishing
 
 
-***
-
 ## Instructions
 1. Gently melt the butter and prehead the oven to 350F
 2. Mix dry ingredients (flour, sugar, cocoa powder, baking powder)
