@@ -8,13 +8,10 @@
 - 225 ml - 250 ml warm water 
 - olive oil 
 
-*** 
-
 ### optional
 - garlic powder, parsely (pizza dough)
 - rosemary, garlic, cherry tomatoes on top (bread)
 
-***
 
 ## Instructions
 1. Mix the sugar in warm water, let cool if too hot
