@@ -14,7 +14,7 @@
 
 
 ## Instructions
-1. Gently melt the butter and prehead the oven to 350F
+1. Gently melt the butter and preheat the oven to 350F
 2. Mix dry ingredients (flour, sugar, cocoa powder, baking powder)
 3. Whisk wet ingredients (eggs, milk, melted butter, vanilla extract)
 4. Combine wet and dry ingredients until smooth
