@@ -1,5 +1,4 @@
-# Mochi Brownies
-
+# Beurre Blanc
 ## Ingredients 
 - ¼ cup dry white wine
 - ¼ cup white-wine vinegar
