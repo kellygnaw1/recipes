@@ -22,4 +22,4 @@
 - ¼ cup chopped roasted peanuts
 - 1 lime
 
-* Reference * : https://hot-thai-kitchen.com/pad-thai/
+*Reference* : https://hot-thai-kitchen.com/pad-thai/
