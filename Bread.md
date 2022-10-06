@@ -8,6 +8,12 @@
 - 225 ml - 250 ml warm water 
 - olive oil 
 
+## For Big Bread B-)
+- 3.5 - 4 cups of flour
+- 1.5 tsp of sugar 
+- 1 tsp salt
+- 2.5 tsp of yeast 
+
 ### optional
 - garlic powder, parsely (pizza dough)
 - rosemary, garlic, cherry tomatoes on top (bread)
