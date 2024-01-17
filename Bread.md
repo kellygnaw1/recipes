@@ -3,7 +3,7 @@
 ## Ingredients 
 - 2 - 2.5 cups of all purpose flour or bread flour
 - 1 packet instant yeast (2.25 tsp equivalent)
-- 0.75 - 1 tsp salt 
+- 0.75 - 25 tsp salt 
 - 2 tsp sugar (brown sugar preferred)
 - 225 ml - 250 ml warm water 
 - olive oil 
